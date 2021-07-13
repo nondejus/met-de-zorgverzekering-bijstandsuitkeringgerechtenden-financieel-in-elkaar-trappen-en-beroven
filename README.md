@@ -1,1 +1,1 @@
-# met-de-zorgverzekering-bijstndsuitkeringgerechtenden-financieel-in-elkaar-trappen-en-beroven
+# met-de-zorgverzekering-bijstandsuitkeringgerechtenden-financieel-in-elkaar-trappen-en-beroven
